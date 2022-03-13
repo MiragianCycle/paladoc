@@ -1,0 +1,226 @@
+TITLE: **Pala** 
+CREDIT: Written by
+AUTHORS: Vindhya Buthpitiya, Theena Kumaragurunathan
+NOTES: Working Production Draft
+
+COPYRIGHT: (c) 2022, Vindhya Buthpitiya, Theena Kumaragurunathan
+
+
+# ACT 2 
+Sahodaraya
+
+[[ All my friends are now dead - JVP/War]]
+
+
+
+
+ 
+
+ 
+
+
+[[Question to Pala]]
+
+Can you tell us about your last year in the village?
+
+Had the village changed much since your childhood - socially/economically/politically?
+
+How so? 
+
+With the war and unrest in in various parts of the island, this was a turbulent period in Sri Lanka. Did this seep into the village in any way?
+
+Did you notice any significant changes to life in the village of what is happening elsewhere on the island?
+
+[[I imagine military recruitment and its impact on villages in the rural south as well as the burgeoning unrest with the JVP, widespread poverty]]
+
+Do you have any memories of any such specific incidents?
+
+When did you leave the village?
+
+Why did you leave?
+
+[[Pala leaves to go take his Advanced Level exams in a school in Matara]]
+
+Did anyone in particular encourage you to leave?
+
+Had you been to Matara before?
+
+What for?
+
+Do you remember the day you left the village?
+
+Do you remember what you felt?
+
+Do you remember what happened when you arrived in Matara?
+
+Do you remember wha you felt?
+
+Did you travel by yourself or with someone else?
+
+Where did you stay?
+
+What did you do next?
+
+[[Pala attempts to enroll at Rahula College in Matara,which requires a hefty admission fee. He refuses to burden his family with the cost and enrolls at the Pirivena next door so that he can pursue his A/L in fine art]]
+
+What did you study at the Pirivena?
+
+Who were the other students there?
+
+Who taught you?
+
+What was the learning environment like? 
+
+Where were you living during this time?
+
+Who were your friends with?
+
+What were you interested in beyond your studies? 
+
+What did you do outside the time you were studying in the pirivena?
+
+Do you have any specific memories about this time? 
+
+What was the wider environment in Matara like?
+
+How was it different to the village?
+
+How did you feel about this new environment? 
+
+Did you spend time with other people or did you find yourself quite isolated?
+
+The wider political context in Sri Lanka is worsening at this point in time, and is this becoming visible in Matara?
+
+Did you know people who were involved in the JVP?
+
+How did you get to know them?
+
+What did you think of them?
+
+What did you think of their political ideas?
+
+Did these appeal to you?
+
+Did you feel motivated to support or contribute in some way?
+
+[[Pala's artistic skills were recognised by those involved in the JVP and was enlisted to make posters - Pala is apprehended by the army]]
+
+Do you remember the lead up to you getting stopped at a check point?
+
+Where were you going?
+
+What happened at the checkpoint?
+
+What were you feeling when you realised what was happening?
+
+What happened next?
+
+[[Would encourage Pala to narrate this at a level of detail he is comfortable with - avoid asking probing/follow-up questions]]
+
+What did it feel like to see your family again?
+
+What happened after? 
+
+Did you go back to the village?
+
+What was it like to return? 
+
+How did you recover from that experience?
+
+Is it possible to recover from such an experience?
+
+Who helped you through that time?
+
+Did you keep making art at this time?
+
+Did it help?
+
+How long did you stay at home?
+
+When did you return to Matara?
+
+What was it like to return to Matara and your education?
+
+It's impossible to imagine the trauma of that you underwent in that time in your life. Looking back, how do you think that experience changed/impacted you?
+
+Does this encounter with violence influence your work?
+
+[[colonial violence x state violence]]
+
+How so? 
+
+How would you describe this period of violence in Sri Lanka? 
+
+Does it feature in your art?
+
+What did you do after you finished your A/Ls?
+
+[[Signboard painting for a landsale]]
+
+What did you want do at this point in your life?
+
+[[Pala's brother discouraged him from his request to join him in to Galle to work in the brother's jewellery workshop and was instrumental to Pala's entrace into university]]
+
+Tell us about your brother?
+
+What was he like?
+
+What did he do?
+
+[[Questions for Pala's family/loved ones]]
+
+Can you describe the time Pala left the village?
+
+Had he expressed a desire to leave?
+
+How did you feel about him leaving?
+
+Did you encourage him to leave?
+
+With the war and unrest in in various parts of the island, this was a turbulent period in Sri Lanka. Did this seep into the village in any way?
+
+Did you notice any significant changes to life in the village of what is happening elsewhere on the island?
+
+Do you have any memories of any such specific incidents?
+
+How did you maintain contact with Pala was in Matara?
+
+Did you go to see him? Did you exchange letters?
+
+What was his life in Matara like?
+
+How did you get to know what happened to him when he was there?
+
+How did you feel about this?
+
+What happened after?
+
+Did you look for him? How/where?
+
+Did you go to the police or anywhere else?
+
+How did you find out where he was?
+
+What happpened next?
+
+What was it like to see him again after three months?
+
+Did you take him back home?
+
+What was that time at home like?
+
+This must have been an incredibly difficult time for you, did this change your relationships within the family in any way?
+
+How did you recover from this experience?
+
+Is it possible to recover from such an experience?
+
+Were you keen for Pala to leave the village after this?
+
+What happened next? 
+
+What did you encourage Pala to do?
+
+How did this period of the beeshanaya/terror affect the village at large?
+
+What changed in the village in its aftermath? 
