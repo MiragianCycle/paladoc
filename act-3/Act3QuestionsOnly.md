@@ -2,7 +2,7 @@ Act3QuestionsOnly.md
 
 Pala addresses/confronts history
 
-Pala walking through the streets of Colombo in costume. [Ritual music overlaid with urban soundscape/camera follows Pala]
+Pala walking through the streets of Colombo in partial costume. picking up/accruing elemnts as he goes along. [Ritual music overlaid with urban soundscape/camera follows Pala]
 
 Narrated by his father - a master of cerermonies reflects on Pala and his career and success, referring to him as his son rather than by name/ Pala weaves through the streets]
 
@@ -96,4 +96,4 @@ Who are you?
 
 [[My name is Pala. I am an artist?]] Directly looks at/addresses the audience. 
 
-
+[[Should Pala pick up elements of his costume as he makes his way through act 1]]
