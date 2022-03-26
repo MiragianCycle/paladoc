@@ -21,3 +21,20 @@ What was that experience like for you?
 Did your family support your pursuit of art?
 
 How did you meet Pala?
+
+When did you meet Pala?
+
+What were your first impressions of him?
+
+Tell us about how your friendship developed?
+
+What role does art play in your relationship? 
+
+What is your favourite artwork that Pala has made?
+
+Why is that?
+
+What do you think of Pala's success?
+
+What do you feel about Pala's success?
+
