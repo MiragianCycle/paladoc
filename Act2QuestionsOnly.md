@@ -4,6 +4,9 @@
 # Questions to Pala
     1.  [Deniyaya](#org9d6b291)
     2.  [Pallegama](#org6c722fe)
+
+
+
         1.  [Tell us about your time in Pallegama?](#org33043dc)
         2.  [Who did you stay with?](#orga383900)
         3.  [How often did you go back home to your family?](#org1fa1cde)
@@ -19,12 +22,20 @@
         13. [How was it different to the village?](#org544c283)
         14. [How did you feel about this new environment?](#orge265ba3)
         15. [The wider political context in Sri Lanka is worsening at this point in time, and is this becoming visible in your village and Pallegama?\*\*\*](#org6c1528e)
+
+[[Would imagine 15/this is the most important question for a more generic overview. How was village life changing. Why was it changing. Who was responsible. What were these changes. Ultimately how was this shaping Pala's artistic practice. Can he provide examples including any specific visual elements/motifs that begin to emerge in his work as a consequence.]]
+
+
         16. [Did you know people who were involved in the JVP?\*\*\*\*\*\*](#orgb9194ab)
         17. [How did you get to know them?\*\*\*](#org609a540)
         18. [What did you think of them?](#org14dfd1c)
         19. [What did you think of their political ideas?](#org843eda0)
         20. [Did these appeal to you?](#org9b0e321)
         21. [Did you feel motivated to support or contribute in some way?](#org3caeeab)
+
+        [[My sense is to ask him who the players were rather than directly ask if he knew who were involved in the JVP. As people as opposed to a political group if that makes sense. Ideally we can tell the story through characters/people/Pala's relationship to them rather than allude directly to political affiliations if needed. Ask him to feel free to use pseudonyms if he's more comfortable that way.]]
+
+
     3.  [Trauma - Skip this section unless he changes his mind](#org1322fff)
         1.  [Who helped you through that time?](#orgadc1828)
         2.  [Did you keep making art at this time?](#orgf849faf)
@@ -32,12 +43,20 @@
         4.  [How long did you stay at home?](#org0314c67)
         5.  [When did you return to Pallegama?](#org1430a37)
         6.  [What was it like to return to Pallegama and your education?](#org4d055f8)
+
+
         7.  [It's impossible to imagine the trauma of that you underwent in that time in your life. Looking back, how do you think that experience changed/impacted you?](#org8f25d80)
+
+[[We can slightly reframe this to say how did growing up, being a young person in Sri Lanka socialised by so much violence/trauma, change/impact you]]
+
         8.  [Does this encounter with violence influence your work?](#orgb97088b)
     4.  [Colonial violence x state violence](#org776ebd2)
         1.  [How so?](#org64c88d1)
         2.  [How would you describe this period of violence in Sri Lanka?](#org1ae3848)
         3.  [Does it feature in your art?](#org3319160)
+
+[[Following section is important to think through and reflect on Pala's journey from rural to urban and how that changed him/his life - was it a place of possibility afforded by relative anonymity of new troubles and limitations? This way if he really doesn't want to talk about the political, we can develop the caste story line into a social class one right through to Colombo and retain him/his narrative on the left]]
+
     5.  [Matara](#org7680b89)
         1.  [Can you tell us about your few months  in the village before you moved to Matara?](#orgab4404e)
         2.  [When did you leave the village?](#org57f01ca)
@@ -69,6 +88,9 @@
         24. [Did you spend time with other people or did you find yourself quite isolated?](#org2d5224a)
         25. [What did you do after you finished your A/Ls?](#orge96353f)
     7.  [Signboard painting for a landsale](#org7981905)
+
+    We can probably use this to develop his move to Colombo and keep things relatively mute. Emphasise relationship with brother etc.
+    
         1.  [What did you want do at this point in your life?](#org928d4f6)
         2.  [Pala's brother discouraged him from his request to join him in to Galle to work in the brother's jewellery workshop and was instrumental to Pala's entrace into university](#orgb4b0094)
         3.  [Tell us about your brother?](#org5a1ea50)
