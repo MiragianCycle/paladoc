@@ -6,9 +6,7 @@ NOTES: Working Production Draft
 COPYRIGHT: (c) 2022, Vindhya Buthpitiya, Theena Kumaragurunathan
 
 
-# ACT 2 
 Sahodaraya
-
 
 * Questions to Pala 
 
@@ -38,13 +36,12 @@ Sahodaraya
 *** How was it different to the village?
 *** How did you feel about this new environment?
 *** The wider political context in Sri Lanka is worsening at this point in time, and is this becoming visible in your village and Pallegama?***
-*** Did you know people who were involved in the JVP?******
+*** Did you know people who were involved in the JVP?
 *** How did you get to know them?***
 *** What did you think of them?
 *** What did you think of their political ideas?
 *** Did these appeal to you?
 *** Did you feel motivated to support or contribute in some way?
-
 
 ** Trauma - Skip this section unless he changes his mind
 
@@ -56,7 +53,6 @@ Sahodaraya
 *** What was it like to return to Pallegama and your education?
 *** It's impossible to imagine the trauma of that you underwent in that time in your life. Looking back, how do you think that experience changed/impacted you?
 *** Does this encounter with violence influence your work?
-
 
 ** Colonial violence x state violence
 
@@ -83,7 +79,6 @@ Sahodaraya
 *** Where did you stay?
 *** What did you do next?
 *** Pala attempts to enroll at Rahula College in Matara,which requires a hefty admission fee. He refuses to burden his family with the cost and enrolls at the Pirivena next door so that he can pursue his A/L in fine art
-
 *** What did you study at the Pirivena?
 *** Who were the other students there?
 *** Who taught you?
@@ -155,3 +150,4 @@ Sahodaraya
 *** How often did he come home?
 *** What was his life in Matara like?
 *** How does Pala end up going to Colombo?
+
