@@ -1,12 +1,7 @@
 Act3QuestionsOnly.md
 
-Pala addresses/confronts history
 
-Pala walking through the streets of Colombo in partial costume. picking up/accruing elemnts as he goes along. [Ritual music overlaid with urban soundscape/camera follows Pala]
 
-Narrated by his father - a master of cerermonies reflects on Pala and his career and success, referring to him as his son rather than by name/ Pala weaves through the streets]
-
-[[unsure if Pala's dad should be appearing visually at this point or should it be cut with visuals of Pala as phantom moving through the city?]]
 
 [possible to achieve something to effect of tuning a radio soundwise?]
 
